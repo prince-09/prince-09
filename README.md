@@ -30,8 +30,8 @@
 
 ### How to reach me
 - My Email Ids - princesinha7072@gmail.com or princes.ug8.cs@nitp.ac.in
-- Linkedin : Prince Sinha
-- Instagram : Prince-09
+- Linkedin : [Prince Sinha](https://www.linkedin.com/in/prince-sinha-90a83b180/)
+- Instagram : [Prince-09](https://www.instagram.com/__prince09/)
 
 #### I would love to connect with new people like you, feel free to reach out.
 <!--
